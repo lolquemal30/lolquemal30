@@ -1,7 +1,3 @@
- hi i´m sunny or sunshine
-she they 
-
-![Mi imagen](https://i.pinimg.com/736x/79/b4/2c/79b42cae074e3b15e04d3372a7e20844.jpg)
-<h1 align="center"> holaa
-  <img src="sunny.gif" width="400"> lol
-</h1> lol
+ # ![Mi imagen](https://camo.githubusercontent.com/fbfc04f9069084d2598bb3d82172272767095164c7b058e783bc72a1f9251984/68747470733a2f2f692e696d6775722e636f6d2f4d66644937744e2e706e67)  
+   #        ¡¡ ᗯEᒪᑕOᗰE TO YOᑌᖇ ᑎEᗯ ᑭᒪᗩᑕE !!
+   ![Mi imagen](https://media.discordapp.net/attachments/853016086781886494/1475360914281599098/IMG_1687.jpeg?ex=699d346c&is=699be2ec&hm=424afe0f6867eeccae30dafc8ca7877583ca760e20a4d9be342613f8b0220e3c&=&format=webp&width=1792&height=1342)

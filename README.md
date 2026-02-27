@@ -1,6 +1,11 @@
 <div align="center">
 
 
+![Mi imagen](https://i.pinimg.com/1200x/70/c9/58/70c9582cbbfad5c0fca32783e3d94ff3.jpg)
+
+
+<p align="center"> 🎪
+
 
 <p align="center">How do we get out of this space?  
 
@@ -14,11 +19,7 @@
 
 
 
-<p align="center">﹒ ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི🎪 ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི ྀི ̼◡◡◡◡ ̼ ྀི◡◡◡◡ ̼ ྀི 
-   
-   .     ૮(˶ᵔᵕᵔ˶)ა.    ˚.      /      Sunny 　　⏖   I LOVE TADC ᛝ     17      ◞      She  /   He.  !!   ᶻ 𝘇</p> 
-
-
+<p align="center">🎪
 
 
 
@@ -28,7 +29,6 @@
   </a>
 </p>
 
+![Mi imagen](https://i.pinimg.com/1200x/70/c9/58/70c9582cbbfad5c0fca32783e3d94ff3.jpg)
 
 
-
-<img src=https://i.pinimg.com/originals/27/83/48/27834815aec73e9fb40cfd7e6f207ad8.gif>
